@@ -1,1 +1,1 @@
-# QINDOWS 11 SETUP 
+# QINDOWS 11 SETUP or widos setup 
